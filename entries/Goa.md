@@ -1,0 +1,3 @@
+# Goa
+
+Panaji is the state's capital, while Vasco da Gama is its largest city. The historic city of Margao still exhibits the cultural influence of the Portuguese, who first landed in the early 16th century as merchants and conquered it soon thereafter. Goa was a former state of the Portuguese Empire. The Portuguese overseas territory of Portuguese India existed for about 450 years until it was annexed by India in 1961. Its majority and official language is Konkani. Poooohohohohfff
